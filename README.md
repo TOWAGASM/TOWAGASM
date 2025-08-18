@@ -1,1 +1,1 @@
-![Screenshot 2025-05-01 021923](https://github.com/user-attachments/assets/5fa6cf3b-df96-4120-9030-f81a3f32a915)
+<img width="400" height="772" alt="400px-CloudStrifeAC" src="https://github.com/user-attachments/assets/4f575fc0-0c41-4f64-8f91-25cf3b38bf85" />
